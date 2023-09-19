@@ -1,0 +1,2 @@
+# Stronki
+Projekcik
